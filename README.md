@@ -1,1 +1,1 @@
-My first readme
+ELMAGNIFGO'S README
